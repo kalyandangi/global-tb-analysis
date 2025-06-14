@@ -36,5 +36,5 @@ Read the full article on Medium: [Medium Article](https://medium.com/@youruserna
 Feel free to reach out for collaborations or queries!
 
 **Kalyan Dangi**  
-[LinkedIn](https://www.linkedin.com/in/kalyandangi/))  
+[LinkedIn](https://www.linkedin.com/in/kalyandangi/)
 [Email](mailto:kalyandangi@outlook.com)
